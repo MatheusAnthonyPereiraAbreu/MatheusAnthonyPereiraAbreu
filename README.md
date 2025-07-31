@@ -20,6 +20,6 @@ Sou um **Desenvolvedor Front-End** com mais de 1 ano de estrada, criando interfa
 ## 🤝 Vamos Conectar?
 
 - 🔗 LinkedIn: [linkedin.com/in/matheus-anthony-pereira-abreu-521a03227](https://linkedin.com/in/matheus-anthony-pereira-abreu-521a03227)  
-- 📫 E-mail: matheus.anthony.pa@outlook.com  
+- 📫 E-mail: matheus.anthony.pa@gmail.com  
 
 ---
